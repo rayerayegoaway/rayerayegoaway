@@ -1,4 +1,4 @@
-             my cat called executioner ♥︎ thats abuses me everydayplshelp
+             this is called executioner ♥︎ thats abuses me everyday. follow to helpme
 
 <div align="center">
 
