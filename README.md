@@ -1,4 +1,4 @@
-             this is called executioner ♥︎ thats abuses me everyday. follow to helpme
+             this is called executioner ♥︎ thats ATTACKS me everyday. follow to helpme
 
 <div align="center">
 
