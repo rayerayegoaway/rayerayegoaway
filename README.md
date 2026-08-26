@@ -1,4 +1,4 @@
-                  me as a ross's cat fiction kin! (i spent a lot of time on this sign ata or follow ples♥︎♥︎)
+                  me as a ross's cat fiction kin. (i spent a lot of time on this sign ata or follow ples♥︎♥︎)
                     
 <div align="center">
 
